@@ -1,1 +1,1 @@
-# politiek-gedreven-seriemoord-in-de-bijstandsuitkering
+# politieke-seriemoord-executies-in-de-bijstandsuitkering
